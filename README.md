@@ -6,5 +6,5 @@
   deleted discord for my mental health but if you want to be friends im planning to download it again
   hoarder on the unexpected places EVA!!!!
   
-  @holoIive <3</center>
+  @holoIive  <3</center>
 </linebreak>
